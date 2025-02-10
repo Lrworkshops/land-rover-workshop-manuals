@@ -40,12 +40,12 @@ A: Simply visit our [online store](https://lrgarage.com) to browse our collectio
 A: Yes, all our **Land Rover repair manuals** are available as **PDFs**, making them easy to view on your device or print for use in the workshop.
 
 **Q: Do you offer manuals for all Land Rover models?**
-A: We provide manuals for most Land Rover models, including **Land Rover Defender**, **Discovery**, **Range Rover**, and more. If you're looking for a specific model, check our [online store](https://www.youronlinestore.com) for more details.
+A: We provide manuals for most Land Rover models, including **Land Rover Defender**, **Discovery**, **Range Rover**, and more. If you're looking for a specific model, check our [online store](https://lrgarage.com/) for more details.
 
 ## About Us
 We are dedicated to providing the best and most accurate **Land Rover workshop manuals** available online. Our manuals are sourced from trusted automotive resources and cover both general maintenance and complex repair procedures.
 
-For more information and to browse our full collection, visit [our website](https://www.youronlinestore.com).
+For more information and to browse our full collection, visit [our website](https://lrgarage.com/).
 
 ---
 
